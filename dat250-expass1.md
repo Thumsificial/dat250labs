@@ -1,0 +1,1 @@
+https://github.com/Thumsificial/dat250-lab1/blob/master/dat250-expass1.md
